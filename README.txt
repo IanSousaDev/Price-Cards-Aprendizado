@@ -1,0 +1,1 @@
+Fala galera!! Me chamo Ian Sousa, estou "começando" na área. Deixei um repositório do meu aprendizado, espero que gostem!
